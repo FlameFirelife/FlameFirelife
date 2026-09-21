@@ -1,4 +1,4 @@
-hey! I’m @FlameFirelife, a.k.a. FlameGifs.
+hey! I’m @FlameFirelife, a.k.a. FlameGifs, or FlameDev.
 I’m interested in Game Developing, cool ways to code, and making gifs lmao.
 How to reach me: insta- flamegifs
 Pronouns: He/him
